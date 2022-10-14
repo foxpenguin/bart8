@@ -1,3 +1,7 @@
-# bart8
-# bart8
-# bart8
+# Wypożyczalnia
+
+# Oferta
+
+# Regulamin
+
+# Kontakt
